@@ -18,7 +18,7 @@ Here are some ideas to get you started:
 
 ⚡ I'm a multidisciplinary digital product designer.
 🌱 I love a hands-on creative project and a challenge.
-🔭 Fun fact, I’m [fitting out a bus as a motorhome](dustyandthesardines.nz) for our family.
+🔭 Fun fact, I’m [fitting out a bus as a motorhome](http://www.dustyandthesardines.nz) for our family.
 😄 My spare time is spent with my kids, wife, and pooch. I love water/snow sports and exploring New Zealand.
 
-You can [read more about me](paulclarke.nz) or get in touch by [email](mailto:2paulclarke@gmail.com).
+You can [read more about me](http://www.paulclarke.nz) or get in touch by [email](mailto:2paulclarke@gmail.com).
