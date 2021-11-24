@@ -21,4 +21,4 @@ Here are some ideas to get you started:
 🔭 Fun fact, I’m [fitting out a bus as a motorhome](dustyandthesardines.nz) for our family.
 😄 My spare time is spent with my kids, wife, and pooch. I love water/snow sports and exploring New Zealand.
 
-You can get in touch by [email](mailto:2paulclarke@gmail.com).
+You can [read more about me](paulclarke.nz) or get in touch by [email](mailto:2paulclarke@gmail.com).
